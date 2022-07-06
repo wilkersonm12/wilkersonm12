@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **Contact Support**
 
-- ⚡ Fun fact **I thought I wanted to be a developer until I saw good development and bad software instructions, I was born for this.**
+- ⚡ Fun fact **I thought I wanted to be a developer until I saw good development and bad software instruction, I was born for this.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
